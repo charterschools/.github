@@ -22,4 +22,3 @@ So, what’s the forecast here? Well, it looks like we can expect the cycle to c
 
 As the choice movement grows and new options emerge, the standard for what defines a “good” school may evolve as well. If anything, this cycle underscores the value of informed choice, allowing families to find the best educational fit for their children while knowing that, if a school isn’t up to par, they aren’t stuck with it forever. So while charter school closures might seem like a negative at first glance, they actually reflect a unique strength of the system—the ability to learn from mistakes, make room for new ideas, and above all, prioritize the needs and voices of families.
 
-Thanks for tuning into The Jessie's Show today. If you’re a parent or guardian navigating school choices, remember that knowledge is power. Keep asking questions, stay informed, and, above all, know that you have options. Until next time, this is Jessie, signing off.
